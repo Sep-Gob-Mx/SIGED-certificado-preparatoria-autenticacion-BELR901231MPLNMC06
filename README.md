@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BELR901231MPLNMC06
+BELR901231MPLNMC06
